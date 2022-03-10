@@ -1,2 +1,7 @@
-# World-of-Connections-Ukraine-Aid
-World of Connections- Humanitarian Aid to Ukraine
+World of Connections is a 501 (c) non profit registered with IRS is on the ground in Ukraine from Day 1 of War. WOC has been working in Ukraine for many years supporting children orphanages and those who needed assistance. That is why they have existing infrastructure in place to meet the needs for those most vulnerable at the moment.  WOC is small but effective.  All their supplies are donated in US through large distributor such as Henry Scheine and Pharmaceutical companies such as J&J worth millions of dollars. WOC has warehouses through various partner organizations in the south from Mississippi to Tennessee.  WOC also has a warehouse in Poland on the border with Ukraine. WOC has been setting up IDP camps on the Ukraine border to take in refuges and providing critical and urgent medical supplies, medications and emergency food for babies.  Everyone in the organization is a volunteer.  Nobody has a salary and nobody makes a penny on your donations. 
+
+Each dollar goes towards the relief effort.  Not many organizations can make that claim. WOC can!  
+
+WOC usually has logistics part covered due to grants they hold with US government; but due to the critical situation in Ukraine much of this funding was frozen and now they need your help for logistical part to get these supplies to their warehouse in Poland. As of today WOC has 500+ pallets of critical supplies that we need to get to Ukraine. In Ukraine, WOC has partners who can help with transportation to get the supplies to hospitals and other hot points.
+
+WOC is working with METL https://metl.co that is providing custody services for crypto and reverse FIAT gateway in US. 
